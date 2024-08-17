@@ -1,1 +1,0 @@
-# jscoetzer.github.io
